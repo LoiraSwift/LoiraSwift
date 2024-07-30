@@ -1,4 +1,4 @@
-## i bet you think about me! 💜
+## i bet you think about me! 🍷
 
 - estou estudando no alura (https;//www.alura.com.br)
 - estou me desenvolvendo na linguagem java script
