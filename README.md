@@ -11,3 +11,7 @@
 ![](https://media1.tenor.com/m/aqg2X-PLBEUAAAAC/swifferpics-taylor-swift.gif)
 
 ![](https://media1.tenor.com/m/dHGuvmLO888AAAAC/plceinthisworld-taylor-swift-reaction.gif)
+
+![](https://media1.tenor.com/m/Pv4VGGJ1o6EAAAAd/taylorswift.gif)
+
+![](https://media1.tenor.com/m/MICBZcf12DQAAAAC/taylor-taylor-swift.gif)
